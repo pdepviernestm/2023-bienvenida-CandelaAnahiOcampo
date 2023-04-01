@@ -1,4 +1,10 @@
 ## CANDELA ANAHI OCAMPO
 ### Hola! Esta es una breve presentación sobre mi :)
-*Me gustan muchos los animales especialmente los perros así que les voy a presentar a mis dos compañ ellos son Morena (Ovejera Alemán) tiene 1 año y dos meses 
-y después esta Moro que tiene 3 años es un caniche y lo adoptamos hace un mes aproximadamente ya que lo abandonaron en una terraza junto a sus dos hermanas.*
+*Actualmente estoy cursando mi segundo año en la faculta, me encantan los perros actualmente en mi casa tenemos 4 mascotas ellos son:*
+*Morena (Ovejera alemán, tiene 1 año y 2 meses)
+*Moro (Caniche, tiene aproximadamente 3 años, a él lo adoptamos hace 1 mes ya que lo habian abandonado en una terraza junto a sus dos hermanas)
+*Herculés (es un gato y tiene 7 años, es el jefe de la casa.)
+*Aslam (es un gato también y lo adoptamos casi al mismo tiempo que vino More, también tiene 1 año y 3 meses)
+
+
+
