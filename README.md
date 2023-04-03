@@ -1,4 +1,7 @@
 ## CANDELA ANAHI OCAMPO
+###### *Legajo:* 2038985
+__________________________________________________________________________________
+[![aaa.jpg](https://i.postimg.cc/PJrTBCd0/aaa.jpg)](https://postimg.cc/gX5ChkXK)
 ### Hola! Esta es una breve presentación sobre mi :)
 *Tengo 22 años y actualmente estoy cursando mi tercer año en la facultad ingresé en 2021. Me gusta escuchar cualquier tipico de música, soy de Aries y mi color favorito es el violeta.*
 *Por último, me encantan los animales actualmente en mi casa tenemos 4 mascotas así que se los presento ellos son:*
